@@ -1,1 +1,0 @@
-# tedtse.github.io
